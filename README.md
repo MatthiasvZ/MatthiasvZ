@@ -1,0 +1,5 @@
+- 👋 Greetings, I’m @MatthiasvZ
+- 👀 I’m mostly interested in Touhou, Chess, Linux and obviously programming.
+- 🌱 Currently, I'm trying to improve my skills in (graphics-) programming and Japanese.
+- 💞️ As for now, I intend to keep working alone. 
+- 📫 You should, however, be able to reach me over my email.
